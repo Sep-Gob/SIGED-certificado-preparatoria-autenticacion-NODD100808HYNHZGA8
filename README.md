@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NODD100808HYNHZGA8
+NODD100808HYNHZGA8
